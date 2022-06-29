@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @liciniosousa
 - 👀 I’m interested in all technology.
-- 🌱 I’m currently learning ios development and project management.
+- 🌱 I’m currently learning all I can.
 - 💞️ I’m looking to collaborate on projects to improve the world.
 - 📫 Twitter @licinio_s
 
